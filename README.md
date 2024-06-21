@@ -1,3 +1,4 @@
+https://www.cisco.com/c/m/en_us/training-events/events-webinars/fy25-cisco-pre-placement.html
 # Cisco-FY25-Pre-Placement
 Subject: Cisco | FY25 Pre Placement Talk - Invite Importance: High
 
